@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @racer0036
+- 👀 I’m interested in game hacking
+- 🌱 I’m currently learning assembly
+- 📫 You can reach me on discord at Racer#0036
